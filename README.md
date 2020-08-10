@@ -1,1 +1,0 @@
-# Management_of_IIITA_visiter_hostel
